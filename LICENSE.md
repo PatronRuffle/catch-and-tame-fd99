@@ -1,4 +1,4 @@
-#  
+#  custom Script for catch and tame is the best catch and tame Script, featuring speed and unlimited stamina. Safe and powerful for all your needs.
 
 
 
